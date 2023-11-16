@@ -1,4 +1,4 @@
-Hi, I’m @K4ySuh. Complete TRYHARD.
+Hi, I’m @K4ySuh.
 
 <!---
 K4ySuh/K4ySuh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
